@@ -1,4 +1,4 @@
-#  <a href="https://1046ultrabet.com/">www.sekabet.com</a>
+#  <a href="https://1046ultrabet.com/">www.ultrabet.com</a>
 #  <a href="https://1046ultrabet.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
 6 hours ago
 
